@@ -5,7 +5,7 @@
 
 | 问题 | 回答 | last updated date |
 |-----|-----------|-----------|
-| 1. 转运公司？寄回国快递？ | 黄程远 (cary), 小芳 (morrisville) |  |
+| 1. 转运公司？寄回国快递？ | 黄程远 (cary 微信：a123458708), 小芳 (morrisville 微信：wdq8119752641, 水果零食团购群也找她) |  |
 | 2. cleaning company？ | Max Adloo 9196224577 ; David Slinas 9194992828  |   |
 | 3. dmv appointment？可以walk in吗？外州搬来换license和registration流程？ | 网上预约， walkin可以排队，先换license再换registration，不同office；北卡每年3% vehicle tax | 07/27/2023  |
 | 4. 附近有没有理发店？ | 1+1 salon  |  |
