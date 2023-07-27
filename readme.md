@@ -10,7 +10,7 @@
 | 3. dmv appointment？可以walk in吗？外州搬来换license和registration流程？ | 网上预约， walkin可以排队，先换license再换registration，不同office；北卡每年3% vehicle tax | 07/27/2023  |
 | 4. 附近有没有理发店？ | 1+1 salon  |  |
 | 5. 附近推荐的移民律师？ |   |  |
-| 6. 华人dentist？ |  |   |
+| 6. 华人dentist？ | crystal smile @ cary |   |
 | 7.华人pcp？ |   |  |
 | 8. 家政reference | 空调 Aaron:联系电话：(919) 949-3416（英文）(919) 949-1284（中文）  |   |
 |  | Plumbing 金师傅：(919) 636-8800  ; 赵师傅：919-641-7888 |   |
